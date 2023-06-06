@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CodeBreaker2111
 - 👀 I’m interested in Coding and science. DDUUUH!
-- 🌱 I’m currently learning Rust because rust is the top G!
+- 🌱 Idk what I'm learning... I jump around a lot.
 - 💞️ I’m looking to collaborate on nothing, I'm a lone wolf(But I like cats.).
 - 📫 How to reach me ... IDK.
 
